@@ -1,1 +1,0 @@
-# rikduic7
